@@ -1,5 +1,4 @@
 
- 
 **Ad Soyad:** EMCED SHIEKH MOHAMED  
 **Öğrenci No:** 2507020037  
  
